@@ -1,0 +1,1 @@
+Yıldızlar ile elmas
